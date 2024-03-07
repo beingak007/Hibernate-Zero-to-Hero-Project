@@ -1,2 +1,2 @@
-# Author By:-
+# Author By
 ## Akash Shinge
